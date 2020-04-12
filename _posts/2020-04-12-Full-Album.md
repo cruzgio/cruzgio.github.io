@@ -4,7 +4,7 @@ title: "Welcome to Full Album"
 author: "Giovanni Cruz Forero"
 categories: documentation
 tags: [documentation,welcome]
-image: cuba-1.jpg
+image: play.jpg
 ---
 
 I need to be connected to the music to fell alive, is an inspiration, is essential in my life, and this is just a project that i want to start a long time ago, to share what I think and feel about an album of the music that i really like, to share and review some albums, and a way to keep up the track of my music collection.
