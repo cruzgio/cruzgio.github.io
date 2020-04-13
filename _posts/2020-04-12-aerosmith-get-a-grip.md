@@ -2,7 +2,7 @@
 layout: post
 title: "Aerosmith - Get a Grip"
 author: "Giovanni Cruz Forero"
-categories: review
+categories: reviews
 tags: [review]
 image: getagrip.jpg
 ---
