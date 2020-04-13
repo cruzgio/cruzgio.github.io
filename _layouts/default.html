@@ -12,6 +12,10 @@
   </div>
   {% include footer.html %}
 </div>
-
+  {% if page.image %}
+    <div class="featured-image">
+      <img src="{{ site.github.url }}/assets/img/{{ page.image }}">
+    </div>
+  {% endif %}
 </body>
 </html>
