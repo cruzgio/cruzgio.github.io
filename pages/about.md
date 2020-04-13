@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: misc
 title: About
 ---
 
