@@ -1,16 +1,8 @@
 ---
-layout: misc
+layout: post
 title: About
 ---
 
-I need to be connected to the music to fell alive, is an inspiration, is essential in my life, and this is just a project that i want to start a long time ago, to share what I think and feel about an album of the music that i really like, to share and review some albums, and a way to keep up the track of my music collection.
+Trying to write this about, i remember that when i was like 4 years old, i dream being a doctor and rockstar, that was the time of "Rock en Español" of the eightees in LATAM, was the era of Soda Stereo, Los Prisioneros, Hombres G and many other groups. I believe that my mother asked their students to recorded for me some cassetes and I really enjoyed the music that i hearded... That's the first memory that i think that brought me here... That was the beginning of this... **Thanks mom for shape this music lover...***
 
-When i start my collection... a long time ago with the album Get a Grip from Aerosmith, i start just hearing the singles that i saw on MTV, but after the time I heard the whole album and discover great songs that i really like and with the time I understand the importance to take time to understand what is behind the music... just the music... my native language is Spanish, and when is start i just enjoy the music, now I understand and check some lyrics... but this is about **music**.
-
-I hope this page works and I just want to thank to all the artists that with their inspiration build the soundtrack of our lifes.
-
-Inicio este proyecto, aún no se si lo voy a hacer todo en inglés, o todo en español, solo se que quiero hablar de música, quiero mantener un registro activo de lo que siento cuando escucho diferentes grupos, trabajos, canciones, contar lo que siento cuando escucho mi colección, compartir mi pasión y plasmar una de mis grandes pasiones en un sitio abierto.
-
-Al inicio de mi colección recuerdo que escuchaba más que todo los sencillos de los discos, pero poco a poco fui entendiendo la importancia del trabajo completo y en este camino he encontrado muchas joyas que a veces son innumerables en una colección que sigue creciendo y por eso quiero empezar con esta página.
-
-Espero verla crecer y progresar cada vez más, gracias a la **música** por ser mi motor y a todos esos artistas que con su trabajo llenan el soundtrack de nuestra vida con su música.
+No quiero el clásico hola soy Giovanni... soy bla bla bla, así que me puse a pensar desde donde pudo nacer esto... y el primer recuerdo que me viene a la mente es como a los 4 años con una grabadora marca Silver donde podía poner los cassetes que mi mamá le pedía a sus alumnos me grabaran (ahora creo entender porqué aún mi mamá recuerda Pa Pa Pa de Los Prisioneros), en la época del Rock en Español de los ochentas... yo quería ser médico y rockstar (aún no entiendo que pasó en el camino), pero se que esa música desde ese momento cambio mi vida, no puedo negar la herencia guapachosa y bolerosa heredada de mis padres, pero me imagino que esa semilla fue la que me hizo trazar mi propio camino musical, que ahora se transforma en esto... **Gracias madre por formar este melómano**
