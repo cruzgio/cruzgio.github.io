@@ -4,7 +4,7 @@ title: "The Doors - The Doors"
 author: "Giovanni Cruz Forero"
 categories: reviews
 tags: [reviews, The Doors, The Doors]
-image: pendiente
+image: thedoors.jpg
 ---
 
 # The Doors - The Doors
