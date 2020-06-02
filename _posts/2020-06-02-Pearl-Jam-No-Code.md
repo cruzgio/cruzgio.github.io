@@ -15,7 +15,7 @@ Un disco de esa hermosa epoca del grunge, en un momento de transformación de Pe
 
 Off He Goes es una canción hermosa, profunda, para sentarse a disfrutar los matices de las guitarras, tiene un contraste perfecto con Habit con una voz desgarrada con un ritmo muy pegajoso, en Red Mosquito una vez más se puede disfrutar la virtuosidad de las guitarras de Pearl Jam vale la pena disfrutar cada solo que ofrece la canción y Lukin se podría resumir como un "punk" al estilo PJ ??.
 
-Present Tense es otra de las canciones suaves del disco con una interesante en la evolución de la guitarra dentro de la canción para darle una transición a un final mucho más rápida y un cierre anclado a su inicio, para cerrar esta excelente disco está Around the Bend otra canción tranquila, para disfrutar, de alguna manera me evoca una canción de Elvis al estilo PJ.
+Present Tense es otra de las canciones suaves del disco con una interesante en la evolución de la guitarra dentro de la canción para darle una transición a un final mucho más rápida y un cierre anclado a su inicio, para cerrar esta excelente disco está Around the Bend otra canción tranquila, para disfrutar los diferentes instrumentos que la construyen, de alguna manera me evoca una canción de Elvis al estilo PJ.
 
 ## No me convence
 
