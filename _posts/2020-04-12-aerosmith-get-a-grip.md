@@ -9,20 +9,51 @@ image: getagrip.jpg
 
 # Aerosmith - Get a Grip
 
-Siendo el primer CD que tuve, es mi primera elección para hacer una reseña, los sencillos (aunque no todos recuerdo haberlos escuchado en Colombia y otros sonaron demasiado convirtiéndose en las canciones mas reconocidas de este grupo en el país) que sin duda le permitieron su gran éxito comercial en un álbum que estaba muy preparado para sonar en radio fueron:
+Este fue el primer CD que tuve y aquí es donde comienza mi colección musical personal, este es el motivo de que sea mi primera elección para hacer una reseña y comenzar este blog.
 
-* _Livin' on the Edge_
+Los sencillos de este trabajo, aunque no todos, recuerdo haberlos escuchado en la radio comercial de Colombia de manera continua y repetitiva, convirtiéndolos de alguna forma en las canciones más reconocidas de este grupo en el país. 
+
+Esto, sin duda, les permitió obtener su gran éxito comercial con un álbum que estaba muy preparado para sonar en radio. 
+
+Los sencillos de los que estoy hablando son:
+
+* Livin’ on the Edge
 * Eat the Rich
-* _Cryin_
-* _Amazing_
+* Cryin
+* Amazing
 * Fever
 * Shut Up and Dance
-* _Crazy_
+* Crazy
 
-Un elemento inolvidable para mi es la participación en algunos de los videos de este álbum de la hija del vocalista Steven Tyler: _Liv Tyler_ junto a _Alicia Silverstone_ (sin poder negar un crush inevitable que sentí en su momento). Algo que no es tan conocido del álbum es la participación de artistas adicionales como _Lenny Kravitz_ en la canción __Line Up__, y la participación de _Desmond Child_ en las canciones __Crazy__ y __Flesh__, aunque su nombre no es tan reconocido, vale la pena resaltar que ha producido, co - escrito o escrito canciones con Aerosmith desde 1987 hasta 2012 como Angel, Dude (Looks Like a Lady), What It Takes, Hole In my Soul entre otras.
+Un elemento inolvidable para mí de esta epoca de Aerosmith y de este trabajo, esta dado por la participación de la hija del vocalista Steven Tyler: Liv Tyler junto a Alicia Silverstone, en el video de Crazy, fue imposible no enamorarse de esas dos mujeres en ese video, al poder verlas cada vez que las pasaban por MTV y disfrutar una y otra vez cada instante del video, obviamente es imposible ignorar la trilogia de videos de este disco realizados con Alicia Silverstone que los completan Cryin' y Amazing.
 
-Es interesante ver como Aerosmith logro dentro de su genero Hard Rock fuertemente influenciado por el Blues en 1993, ano en el que apareció el Get a Grip y en pleno boom del grunge posicionar un disco clásico con canciones que sin duda son inolvidables y renueva su sonido clásico que empezó en Boston en los anos 70s.
+Como particularidad, y lo digo así porque sé que no todos saben este dato del álbum, está la participación de artistas adicionales como:
 
-En este trabajo en realidad resaltan las canciones que son grandes éxitos comerciales tanto por su composición, como su sonido, __Livin' on The Edge__ y __Amazing__ son de mis canciones favoritas de Aerosmith, pero hay para mi dos joyas escondidas, son canciones muy interesante en el trabajo que sobresalen en general en un disco que es divertido sin ser una pieza maestra de Aerosmith, la primera es __Fever__... me encanta su toque rock y blues muy marcado gracias al toque de Joe Perry, el cual marca la diferencia del sonido en una cancion que hasta el momento de escribir este post no sabia que fue un single del Get a Grip. Por el otro lado esta __Flesh__, una de las canciones co - escritas por Desmond Child y es interesante la influencia en el sonido que le da Brad Whitford a estas dos canciones donde el es el encargado de la guitara lider, este cambio demuestra de manera clara los matices que puede impregnar un músico al concepto general de la banda.
+* Lenny Kravitz en la canción Line Up 
+* Tommy Shaw y Jack Blades en Shut up and Dance
+* Jim Vallance en las tres primeras canciones de este trabajo
+* Desmond Child en las canciones Crazy y Flesh 
 
-Un ultimo elemento a resaltar es que en 1994, Aerosmith incluyo un canción digital para descargar desde Internet llamada __Head First__ la cual es la primera canción de un gran grupo que fue lanzada en este modelo, esta canción se encuentra incluida en la compilacion Young Lust para los que no la han llegado a escuchar.
+De este último puedo añadir, ya que su nombre no es tan reconocido,  que ha producido, co - escrito o escrito canciones para Aerosmith desde 1987 hasta 2012. Entre ellas tenemos canciones tan famosas como Angel, que seguro todos la han tarareado alguna vez, Dude (Looks Like a Lady), What It Takes, Hole In my Soul, que son dos de mis canciones de desamor favoritas, entre otras.
+
+Una de las preguntas frecuentes relacionadas con Aerosmith es cuál es el género musical, pues bien, la respuesta es Hard Rock. Me parece muy interesante y que cabe resaltar de este álbum que fue capaz en pleno boom del grunge posicionarse con un sonido totalmente diferente al más consumido en ese momento. 
+
+Fue increíble haber visto como en 1993, año en el que Get a Grip apareció, Aerosmith logró posicionar un disco clásico dentro del Hard Rock, con la fuerte influencua del Blues que siempre ha caracterizado el sonido de esta banda.
+
+Get a Grip es un álbum que con canciones indudablemente inolvidables, renueva el sonido clásico, ése que comenzó en Boston en los años 70s.
+
+Otro dato curioso asociado al Get a Grip, fue que en esta época, en la que todos sufríamos descargando canciones piratas en Napster, Aerosmith en 1994, incluyó,  una canción digital para descargar desde Internet llamada Head First.
+ 
+Esta fue la primera canción, de un grupo musical ampliamente reconocido, que fue lanzada en este modelo. La canción se encuentra incluída en la compilacion Young Lust para los que no la han llegado a escuchar. 
+
+Regresando al sonido del Get a Grip, considero que vale la pena resaltar las canciones que son grandes éxitos comerciales, tanto por su composición como por su sonido. Sin embargo entre ellas se destacan desde mi punto de vista; Livin’ on The Edge y Amazing, ambas hacen parte de mis canciones favoritas de Aerosmith. 
+
+Estas dos canciones siendo lentas, tienen un sonido mas denso, y unas letras que si nunca se han parado a revisarlas, les recomiendo hacerlo, porque en realidad tienen un mensaje muy interesante cada una desde su perspectiva propia.
+
+Sin embargo, podría decir que hay dos joyas escondidas en este albúm, ambas son canciones muy interesante en el trabajo y sobresalen en general en un disco que es divertido, sin ser una pieza maestra de Aerosmith. 
+
+La primera es Fever, me encanta su toque rock y blues muy marcado gracias al toque de Joe Perry que se puede notar a lo largo de toda su carrera en otras canciones de Aerosmith y que llega a su mayor punto de expresion en el Honkin' on Bobo, este sonido particular marca una gran diferencia en el sonido de este disco. (No supe que fue un single de Get a Grip, hasta el momento de escribir este post) 
+
+La segunda es Flesh, una de las canciones co - escritas por Desmond Child. 
+
+En este trabajo es interesante la influencia en el sonido que le da Brad Whitford a estas dos canciones, donde él es el encargado de la guitara lider, vale la pena resaltar que Joe Perry es el guitarrista lider de Aerosmith la mayoría del tiempo, el cambio de liderazgo en la guitarra para estas dos canciones, es una muestra clara los matices que puede impregnar un músico al concepto general de la banda y al sonido en un trabajo. 
