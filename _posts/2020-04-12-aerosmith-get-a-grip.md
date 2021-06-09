@@ -25,7 +25,7 @@ Los sencillos de los que estoy hablando son:
 * Shut Up and Dance
 * Crazy
 
-Un elemento inolvidable para mí de esta epoca de Aerosmith y de este trabajo, esta dado por la participación de la hija del vocalista Steven Tyler: Liv Tyler junto a Alicia Silverstone, en el video de Crazy, fue imposible no enamorarse de esas dos mujeres en ese video, al poder verlas cada vez que las pasaban por MTV y disfrutar una y otra vez cada instante del video, obviamente es imposible ignorar la trilogia de videos de este disco realizados con Alicia Silverstone que los completan Cryin' y Amazing.
+Un elemento inolvidable para mí de esta epoca de Aerosmith y de este trabajo, esta dado por la participación de la hija del vocalista Steven Tyler: Liv Tyler junto a Alicia Silverstone, en el video de Crazy. Fue imposible no enamorarse de esas dos mujeres en ese video, al poder verlas cada vez que las pasaban por MTV y disfrutar una y otra vez cada instante del video. Mi recuerdo y gusto por este trabajo, va sin duda muy de la mano de la trilogia de videos realizados con Alicia Silverstone que los completan Cryin' y Amazing.
 
 Como particularidad, y lo digo así porque sé que no todos saben este dato del álbum, está la participación de artistas adicionales como:
 
@@ -36,7 +36,7 @@ Como particularidad, y lo digo así porque sé que no todos saben este dato del 
 
 De este último puedo añadir, ya que su nombre no es tan reconocido,  que ha producido, co - escrito o escrito canciones para Aerosmith desde 1987 hasta 2012. Entre ellas tenemos canciones tan famosas como Angel, que seguro todos la han tarareado alguna vez, Dude (Looks Like a Lady), What It Takes, Hole In my Soul, que son dos de mis canciones de desamor favoritas, entre otras.
 
-Una de las preguntas frecuentes relacionadas con Aerosmith es cuál es el género musical, pues bien, la respuesta es Hard Rock. Me parece muy interesante y que cabe resaltar de este álbum que fue capaz en pleno boom del grunge posicionarse con un sonido totalmente diferente al más consumido en ese momento. 
+Una de las preguntas frecuentes relacionadas con Aerosmith es cuál es el género musical, pues bien, la respuesta es Hard Rock. Algo que me parece muy interesante y que cabe resaltar de este álbum, es que fue capaz, en pleno boom del grunge, posicionarse con un sonido Hard Rock, el cual ya no era el sonido mas comercial en ese momento. 
 
 Fue increíble haber visto como en 1993, año en el que Get a Grip apareció, Aerosmith logró posicionar un disco clásico dentro del Hard Rock, con la fuerte influencua del Blues que siempre ha caracterizado el sonido de esta banda.
 
