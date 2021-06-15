@@ -25,7 +25,7 @@ Esto, sin duda, les permitió obtener su gran éxito comercial con un álbum que
 * Shut Up and Dance
 * Crazy
 
-UUn elemento inolvidable para mí de esta época de Aerosmith y de este trabajo, fue la participación de Liv Tyler, hija del vocalista Steven Tyler, junto a Alicia Silverstone en el video de Crazy. Fue imposible no enamorarse de esas dos mujeres en ese video, al verlas cada vez que las pasaban por MTV y disfrutar una y otra vez cada instante del video. Mi recuerdo y gusto por este trabajo, va sin duda muy de la mano de la trilogía de videos realizados con Alicia Silverstone que los completan Cryin’ y Amazing.
+Un elemento inolvidable para mí de esta época de Aerosmith y de este trabajo, fue la participación de Liv Tyler, hija del vocalista Steven Tyler, junto a Alicia Silverstone en el video de Crazy. Fue imposible no enamorarse de esas dos mujeres en ese video, al verlas cada vez que las pasaban por MTV y disfrutar una y otra vez cada instante del video. Mi recuerdo y gusto por este trabajo, va sin duda muy de la mano de la trilogía de videos realizados con Alicia Silverstone que los completan Cryin’ y Amazing.
 
 Como particularidad, y lo digo así porque sé que no todos saben este dato del álbum, está la participación de artistas adicionales como:
 
